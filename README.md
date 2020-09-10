@@ -1,5 +1,5 @@
 ### Hi, I'm Nicolas Rachid! 🚀
-https://www.linkedin.com/in/nicolas-rachid-876147121/ https://www.behance.net/nicolasrachid
+
 <!--
 **NicolasRachid/NicolasRachid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
